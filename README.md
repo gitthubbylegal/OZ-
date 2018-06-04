@@ -1,4 +1,4 @@
-# OZ-
+# OZ+
 Partaking ideas compilation and appropriation
 In the beginning was the word. The word came forth and was received.
 In the end we conquer.
